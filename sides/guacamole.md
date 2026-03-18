@@ -9,6 +9,7 @@
 - 1 tsp salt
 - 1/2 onion
 - 10 ml olive oil
+- 1 garlic head
 - 1 Tbsp cilantro
 
 
